@@ -57,4 +57,9 @@ We both work rougly 9am - 5pm, Monday to Friday. When not at work we usually jus
 
 ## Photos
 
+### Living Room 
+
+<img src="./assets/1a369206-0449-4a20-a9a4-febad7e76cf9.jpeg"  height="42" width="42">
+
+
 
