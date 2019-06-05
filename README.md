@@ -39,20 +39,22 @@ We both work rougly 9am - 5pm, Monday to Friday. When not at work we usually jus
 
 ### *Emma's Interests*
 
-Country Music
-Wildlife and the environment
+* Country Music
+* Wildlife and the environment
 
 ### *Ryan's Interests*
 
-Coding
-Boxing
+* Coding
+* Boxing
 
 ## New flatmate preferences
 
-Couples? Yes.
-Smoking? No. 
-Occupation? Don't mind. 
-Gender? Any. 
-Housing Benefit? No. 
+* Couples? Yes.
+* Smoking? No. 
+* Occupation? Don't mind. 
+* Gender? Any. 
+* Housing Benefit? No. 
 
 ## Photos
+
+
