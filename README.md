@@ -7,7 +7,7 @@ I have a room available in my two bedroom flat based in Stoke Newington, N16 9EU
 
 ## Availability
 
-* 1 August 2019.
+* 1 August 2019 (Possibly sooner).
 * Term: 12 months.
 
 ## Cost 
