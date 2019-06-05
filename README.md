@@ -59,7 +59,26 @@ We both work rougly 9am - 5pm, Monday to Friday. When not at work we usually jus
 
 ### Living Room 
 
+<img src="./assets/49103532-399c-4ebc-9806-b4000c5d011d.jpeg"  height="600" width="auto">
+<img src="./assets/990d268b-d4c8-4aff-abe9-7e60fb4c8392.jpeg"  height="600" width="auto">
+<img src="./assets/f59121fc-e330-4674-a1b2-d5f7bceae75f.jpeg"  height="600" width="auto">
+
+### Bedroom 
+
+<img src="./assets/8f732c28-cc2d-4f7b-b519-b8a95045660f.jpeg"  height="600" width="auto">
+<img src="./assets/b26667f9-aa15-4038-92b8-351237d1ab69.jpeg"  height="600" width="auto">
+<img src="./assets/c555d2b2-6309-45a3-8f38-7c3813ecf76d.jpeg"  height="600" width="auto">
+
+### Kitchen
+
 <img src="./assets/1a369206-0449-4a20-a9a4-febad7e76cf9.jpeg"  height="600" width="auto">
 
+### Hallway
+
+<img src="./assets/db63dc35-9cf3-44f8-a9e5-421cc1a3f878.jpeg"  height="600" width="auto">
+
+### Bathroom 
+
+<img src="./assets/fe7916e3-2221-4ddb-adfd-16ec4d9a12ee.jpeg"  height="600" width="auto">
 
 
