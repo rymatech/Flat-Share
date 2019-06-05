@@ -48,7 +48,8 @@ We both work rougly 9am - 5pm, Monday to Friday. When not at work we usually jus
 ### *Ryan's Interests*
 
 * Coding
-* Boxing
+* Watching Boxing
+* Occassionally playing Xbox 
 
 ## New flatmate preferences
 
