@@ -28,6 +28,9 @@ I have a room available in my two bedroom flat based in Stoke Newington, N16 9EU
 
 ## About Flatmates
 
+<img src="./assets/ER.jpg"  height="300" width="auto" border-radius="50%">
+
+
 You will be sharing the two bedroom flat with me (Ryan, aged 28) and my girlfriend (Emma, aged 25). 
 
 I am a Junior Software Developer and Emma works for an animal charity. 
