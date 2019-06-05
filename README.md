@@ -1,4 +1,4 @@
-# Stoke Newington (N16) FlatShare
+# Stoke Newington (N16 9EU) FlatShare
 
 I have a room available in my two bedroom flat based in Stoke Newington, N16 9EU. 
 
