@@ -57,7 +57,8 @@ We both work rougly 9am - 5pm, Monday to Friday. When not at work we usually jus
 
 ## Video of Flat
 
-https://img.youtube.com/vi/https://www.youtube.com/watch?v=kSZuHppqG6s&feature=youtu.be/0.jpg
+[![](./assets/49103532-399c-4ebc-9806-b4000c5d011d.jpeg)](https://www.youtube.com/watch?v=kSZuHppqG6s&feature=youtu.be)
+https://www.youtube.com/watch?v=kSZuHppqG6s&feature=youtu.be/0.jpg
 
 ## Photos of Flat 
 
