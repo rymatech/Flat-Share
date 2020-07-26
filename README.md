@@ -7,7 +7,7 @@ I have a room available in my two bedroom flat based in Stoke Newington, N16 9EU
 ## Availability
 
 * ASAP
-* Term: 6 months
+* Term: 6 months with possibility to extend.
 
 ## Cost 
 
