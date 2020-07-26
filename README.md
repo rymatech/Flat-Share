@@ -4,23 +4,21 @@ I have a room available in my two bedroom flat based in Stoke Newington, N16 9EU
 
 **Please note I am not the landlord, your contract would be with him. If Emma and I were to leave the flat, you would NOT be responsible for our rent.**
 
-
 ## Availability
 
-* 1 August 2019 (Possibly sooner).
-* Term: 12 months.
+* ASAP
+* Term: 6 months
 
 ## Cost 
 
-* Rent: £700 per month (All bills included)
+* Rent: £700 per month (All bills included).
 * Desposit: £700.
-
 
 ## Amenities
 
 * Furnishings: Furnished.
 * Parking: possible to get a permit.
-* Balcony/Patio: Kinda.
+* Balcony/Patio: Kinda although not really.
 * Disabled access: No.
 * Living room: shared.
 * Broadband: included within rent.
@@ -30,15 +28,13 @@ I have a room available in my two bedroom flat based in Stoke Newington, N16 9EU
 
 <img src="./assets/ER.jpg"  height="300" width="auto" border-radius="50%">
 
+You will be sharing the two bedroom flat with me (Ryan, aged 29) and my girlfriend (Emma, aged 26). 
 
-You will be sharing the two bedroom flat with me (Ryan, aged 28) and my girlfriend (Emma, aged 25). 
-
-I am a Junior Software Developer and Emma works for an animal charity. 
+I am a Software Developer and Emma works for an animal charity.
 
 We would be happy to share the flat with an individual or another couple. 
 
-We both work rougly 9am - 5pm, Monday to Friday. When not at work we usually just chill and watch TV. Weekends we go out for drinks around London, go for walks in Hampstead or binge watch Netflix with a takeaway. 
-
+We both work rougly 9am - 5pm, Monday to Friday both working from home at the moment due to COVID-19. When not at work we usually just chill and watch TV. Weekends we go out for drinks around London, go for walks in Hampstead or binge watch Netflix with a takeaway. 
 
 ### *Emma's Interests*
 
@@ -54,7 +50,8 @@ We both work rougly 9am - 5pm, Monday to Friday. When not at work we usually jus
 ## New flatmate preferences
 
 * Couples? Yes.
-* Smoking? No. 
+* Smoking? Definitely not 
+* Drugs? Definitely not. 
 * Occupation? Don't mind. 
 * Gender? Any. 
 * Housing Benefit? No. 
@@ -93,4 +90,4 @@ Click the below image for a video of the flat or copy and paste the follow link 
 
 ## Interested?
 
-Drop me an email: ryanmcavoy@protonmail.com or text 07746656061
+Drop me an email: ryanmcavoy@protonmail.com or text 07851782168
